@@ -1,4 +1,18 @@
-<h2 align="left">Hi 🪴! My name is Anandita Singh      I'm a 🇭🇷 👧🏻 and Receptionist 🛎 </h2>
+<h2 align="left">Hi 🪴! My name is Anandita Singh      I'm a 🇭🇷 👧🏻 and Receptionist 🛎
+
+𝐒𝐇𝐄┃𝐇𝐄𝐑  ➤ 
+
+✉𝓐𝓫𝓸𝓾𝓽 𝓜𝓮
+
+📌 Detail-oriented aur customer-focused professional hain jinke paas HR coordination aur hospitality background (as a hotel receptionist) ka experience hai. Inhe communication, guest handling, documentation aur pressure mein calm rehne ki skills aati hain.
+
+✉ :-aanyath05@gmail.com ✌︎㋡
+
+⌗ ¡ωᥱℓᥴ𐐫꧑ᥱ! 🌈
+
+
+
+</h2>
 
 ###
 
