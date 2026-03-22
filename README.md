@@ -10,6 +10,67 @@
 
 ⌗ ¡ωᥱℓᥴ𐐫꧑ᥱ! 🌈
 
+<h3 align="center">💼 HR Coordinator | Front Office Executive | Customer Service Professional</h3>
+
+I specialize in:
+
+* Managing guest interactions with professionalism
+* Handling documentation and coordination efficiently
+* Maintaining calm and delivering quality service under pressure
+
+I aim to contribute to organizations by ensuring **smooth operations and excellent customer experience**.
+
+---
+
+### 💼 Core Skills
+
+* 🧾 HR Coordination & Administrative Support
+* 🗂 Documentation & Record Management
+* 🗣 Communication & Interpersonal Skills
+* 🏨 Front Office & Guest Handling
+* ⚡ Problem Solving & Multitasking
+
+---
+
+### 🏢 Experience
+
+**Receptionist | Hotel Industry**
+
+* Managed front desk operations and guest check-ins/check-outs
+* Handled customer queries and ensured satisfaction
+* Maintained records and coordinated with internal teams
+
+**HR Support / Coordination (Experience)**
+
+* Assisted in documentation and employee coordination
+* Supported smooth HR processes
+
+---
+
+### 🎯 Career Objective
+
+Looking for opportunities in:
+
+* HR Support / HR Coordinator
+* Front Office Executive
+* Administration / Customer Service
+
+---
+
+### 📫 Contact
+
+* 📧 Email: [aanyath05@gmail.com](mailto:aanyath05@gmail.com)
+* 📍 Location: India
+
+---
+
+### 💡 Strength
+
+> "Calm under pressure, focused on people, and driven by service excellence."
+
+---
+
+
 
 
 </h2>
