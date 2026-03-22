@@ -4,7 +4,7 @@
 
 ✉𝓐𝓫𝓸𝓾𝓽 𝓜𝓮
 
-📌 Detail-oriented aur customer-focused professional hain jinke paas HR coordination aur hospitality background (as a hotel receptionist) ka experience hai. Inhe communication, guest handling, documentation aur pressure mein calm rehne ki skills aati hain.
+📌 Detail-oriented and customer-focused professional with experience in HR coordination and a strong hospitality background as a hotel receptionist. Skilled in communication, guest handling; documentation, and efficient coordination while staying calm under pressure. Seeking opportunities in front office, administration, HR support; or customer service to contribute to smooth operations and excellent service
 
 ✉ :-aanyath05@gmail.com ✌︎㋡
 
